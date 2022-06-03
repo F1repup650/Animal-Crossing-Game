@@ -1,4 +1,4 @@
-&star; I am a kind soul who loves to help and am review the current code daily, the game itself belongs to @SilvermoonCat
+&star; I am a kind soul who loves to help and am review the current code semi-fequently, the game itself belongs to @SilvermoonCat
 # Animal Crossing New Horizons
 
 I coded this two months ago and a few days ago I made some updates and fixes!
