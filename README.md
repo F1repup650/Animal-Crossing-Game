@@ -3,7 +3,7 @@
 
 I coded this two months ago and a few days ago I made some updates and fixes!
 
-Credits to @Bookie0 for the loading symbols, I assembled them :> and a BIG thank you to @ALEXANDERMAPLES
+Credits to @Bookie0 for the loading symbols, I assembled them :> and a BIG thank you to @Firepup650
 for fixing some taberrors! &hearts; &star; 
 
 ## What is Animal Crossing?
